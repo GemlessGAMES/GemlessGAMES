@@ -1,0 +1,5 @@
+- 👋 Hi, I'm Gemless AKA GemlessGAMES
+- 👀 I’m interested in games and others
+- 🌱 I’m currently learning (Idk)
+- 💞️ I’m looking to collaborate on YouTube, Twitch, Discord, Here (Github), and alot more (I think)
+- 📫 How to reach me Discord, Twitch, YouTube Community posts (maybe)
